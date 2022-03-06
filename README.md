@@ -3,7 +3,7 @@
 ### Best Smart Voice Chat Music Robot For Telegram Groups ...
 
 
-<p align="center"><a href="https://t.me/DhrubaXD"><img src="https://telegra.ph/file/8c3abf591121615cdef42.jpg"></a></p>
+<p align="center"><a href="https://t.me/smileplz17"><img src="https://telegra.ph/file/8c3abf591121615cdef42.jpg"></a></p>
 
 
 # ʜᴇʀoᴋᴜ ᴅᴇᴘʟᴏʏ
@@ -17,7 +17,7 @@
 
 - I recomand you to use railway deploy....
 - Its easily deployable to railway
-- regards @DhrubaXD
+- regards @smileplz17
 
 
 ꜱᴛʀɪɴɢ ɴᴀᴍᴇ:
